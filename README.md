@@ -1,0 +1,1 @@
+# Estudo-padrao-ads-gogle
